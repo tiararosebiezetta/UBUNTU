@@ -4,5 +4,6 @@
 # gunakan dengan bijak
 pm me https://t.me/tokisaki_mitsuha
 password runner cek rivew bila anda kurang paham
+# :)
 rivew https://t.me/tokisaki_mitsuha_publik/117
 
