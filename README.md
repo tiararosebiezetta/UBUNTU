@@ -3,4 +3,6 @@
 [![Tokisaki-mitsuha](https://telegra.ph/file/5731f539bbf16c9b39f43.gif)](https://t.me/tokisaki_mitsuha_publik)
 # gunakan dengan bijak
 pm me https://t.me/tokisaki_mitsuha
+password runner cek rivew bila anda kurang paham
+rivew https://t.me/tokisaki_mitsuha_publik/117
 
