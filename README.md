@@ -4,6 +4,5 @@
 # gunakan dengan bijak
 pm me https://t.me/tokisaki_mitsuha
 password runner cek rivew bila anda kurang paham
-# :)
-rivew https://t.me/tokisaki_mitsuha_publik/117
-
+# rivew 
+[![Tokisaki-mitsuha](https://the.tokisakimitsuha.workers.dev/0:/rivew.mp4)](https://t.me/tokisaki_mitsuha_publik)
